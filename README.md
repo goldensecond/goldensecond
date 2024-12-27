@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=goldensecond&color=ff69b4&style=plastic)
+![](https://komarev.com/ghpvc/?username=goldensecond&color=orange&style=plastic)
 
 previously known as github user bloodbathing
 
