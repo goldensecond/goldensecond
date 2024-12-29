@@ -2,6 +2,6 @@
 
 previously known as github user bloodbathing
 
-[click here for pony town info](https://rentry.co/vrwhyqo8)
+[click here for pony town info](https://rentry.co/hoorse)
 
 ![](https://files.catbox.moe/pxw817.jpeg)
