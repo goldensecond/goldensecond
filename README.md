@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=goldensecond&color=green&style=plastic)
 
-previously known as github user bloodbathing
+i am normal
 
 [click here for pony town info](https://rentry.co/hoorse)
 
-![](https://files.catbox.moe/pxw817.jpeg)
+![](https://files.catbox.moe/7oogm7.jpeg)
