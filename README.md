@@ -2,4 +2,4 @@
 
 ![](https://komarev.com/ghpvc/?username=goldensecond&color=red&style=plastic)
 
-[ponytown info](rentry.co/cryingoutmayday)
+[ponytown info](https://rentry.co/cryingoutmayday)
